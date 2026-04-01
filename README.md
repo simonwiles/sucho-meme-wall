@@ -1,1 +1,0 @@
-# sucho-meme-wall
